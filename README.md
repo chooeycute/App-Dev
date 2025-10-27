@@ -26,4 +26,4 @@ It tells the story of rich high school students dealing with love, friendship, a
 
 ---
 
-*Written by: Angel Chooey Tan*
+*Written by: Angel Chooey G Tan*
